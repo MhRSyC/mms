@@ -1,1 +1,1 @@
-# SubDomain Tken by MhRSyC
+# SubDomain Taken by MhRSyC
